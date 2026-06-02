@@ -1,4 +1,4 @@
-# 
+# Free 7-Zip presets for Mac OS | Instant 7-Zip presets for PC Windows. Featuring real-time monitoring and privacy protection — optimized for maximum performance on every platform.
 
 
 
